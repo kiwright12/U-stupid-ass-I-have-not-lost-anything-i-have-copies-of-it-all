@@ -1,0 +1,2 @@
+# U-stupid-ass-I-have-not-lost-anything-i-have-copies-of-it-all
+Everything u have tried to do has failed bur ur too stupid to c what is going  on ...do u think  I have  let u be on all my equipment without doing anything about u trying ur hardest to steal everything I have? U could delete everything online that u think  will get deleted i wait all from the 4 laptops and 5 phones i know  about lol keep going 
